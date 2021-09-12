@@ -4,4 +4,4 @@ I'm Knove
 
 - Always believe that something wonderful is about to happen.
 
-- 人生美好，Enjoy it !
+- 人生就像一盒巧克力，Enjoy it !
