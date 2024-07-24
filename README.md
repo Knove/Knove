@@ -7,3 +7,5 @@ I'm Knove
 - Life is like a box of chocolates. Enjoy it!
 
 - Liberty means responsibility, that is why most people dread it.
+
+- Ticking Away.
