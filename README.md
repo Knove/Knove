@@ -9,3 +9,5 @@ I'm Knove
 - Liberty means responsibility, that is why most people dread it.
 
 - Ticking Away.
+
+- Fear kills more dreams than failure ever will.
