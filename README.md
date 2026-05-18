@@ -11,3 +11,5 @@ I'm Knove
 - Ticking Away.
 
 - Fear kills more dreams than failure ever will.
+
+- 制心一处
